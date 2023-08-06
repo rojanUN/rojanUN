@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **rojanpanta777@gmail.com**
 
-- ⚡ Fun fact **I Peaked Ascendant 3 in Valorant lol**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
